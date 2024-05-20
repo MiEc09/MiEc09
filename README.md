@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MiEc09
+- 👀 I’m interestet i everything around Hardware ans Software  
+- 📄 I don't have any plans for the future curently except finishing school 
+- 📫 How to reach me: micheleckes@proton.me
